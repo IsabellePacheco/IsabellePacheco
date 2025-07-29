@@ -20,7 +20,7 @@ Sou uma desenvovedora de design de web, que tem como objetivo aprofundar cada di
 
 
 ## 🌐 Onde me encontrar?
-- **LinkedIn:** https://www.linkedin.com/in/isabelle-pacheco-silva-1257a4377/
+- **LinkedIn:** https://www.linkedin.com/in/isabelle-pacheco-silva-/
 - **Email:** pachecosilvaisabelle@gmail.com
 
      
